@@ -1,0 +1,8 @@
+# Ringerbrunnen
+Die Geschichte des Ringerbrunnens ist eine meiner liebsten Geschichten, weil sie so absurd ist. Es ist keine historische Geschichte, sondern eine Geschichte um den Braunschweiger Bildhauer Prof. Jürgen Weber aus dem Jahr 1974. Einst war hier der Marktplatz des Weichbildes Sack.
+
+Jürgen Weber wurde beauftragt eine "Wasserkunst" an diesem Platz zu gestalten. Als er jedoch sein Gips Modell von zwei nackten Ringern vorstellte löste er damit eine monatelange Diskussion aus. Zeigen wollte er zwei Ringer, die auf einem Löwenfell kämpften. Es sollte der Riese Antaios, der dafür bekannt war Löwen zu essen, zu sehen sein, wie er im Kampf von Herkules (Herakles) besiegt wurde. Antaios war unbesiegbar, solange seine Füße den Boden berührten. Erst als Herkules ihn emporhob, konnte er ihn töten.
+
+Durch die Kritik seitens u.a. des Stadtrats wurde der ursprüngliche Entwurf modifiziert. Weber gab den Ringern Trikots. Herkules Trikot zeigt die Inschrift JW für Jürgen Weber. Auf dem Trikot des Riesen sind die Namen der lautesten Kritiker zu sehen. Herkules steht auf einem Löwenkopf - der Löwe, der das Wahrzeichen der Stadt ist. Weber tritt seine Füße auf dem Löwen ab. Wir sehen also nun den Kampf Jürgen Webers mit seinen Kritikern und der Stadt Braunschweig statt der mythologischen Darstellung.
+
+Webers neue Version wurde bis zur Enthüllung am 15. August 1975 geheim gehalten. Die Kritiker staunten nicht schlecht, als sie ihren eigenen Namen auf der Skulptur erkannten. Erst lachte ein Anwesender, letztlich alle.
